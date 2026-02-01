@@ -1,6 +1,9 @@
 # *`LENGENDARY KUNJAN IS BACK!!!`*
 
-OG malayalam disser and roaster Kunjan Nambyar is back in action in the big 26!
+**കുഞ്ചൻ നമ്പ്യാർ /നാമം/n/ (kùnchan nambyär)**
+
+
+OG malayalee disser Kunjan Nambyar is back with extreme amounts of tejas in the big 26!
 And he will make sure that everyone cries
 
 # Kunjan AI - AI ROASTER
